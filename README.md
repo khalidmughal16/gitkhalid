@@ -1,2 +1,2 @@
 #gitkhalid
-MY BAME IS M.KHALID
+MY NAME IS M.KHALID
